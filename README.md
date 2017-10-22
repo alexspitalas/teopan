@@ -1,3 +1,3 @@
 # teopan
 This is a project for teopan and apou 
-Ideas worth speading
+Ideas worth speading and believing
